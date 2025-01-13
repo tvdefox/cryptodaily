@@ -1,1 +1,1 @@
-check the new website http://dailycryptoblog.byethost6.com/
+check the new website http://dailycryptoblog.zya.me/
