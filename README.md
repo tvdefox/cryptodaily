@@ -1,1 +1,1 @@
-check the new website http://dailycryptoblog.zya.me/
+check the new website https://challengetok.com
